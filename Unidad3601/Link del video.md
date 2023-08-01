@@ -1,0 +1,6 @@
+# 601
+DOCENTE: DR. HUGO ORTIZ QUIROGA
+ALUMNA: SOTO TRACONIS MARIA FERNANDA
+Link del video: https://youtu.be/XLGgGr2J8dc
+
+
